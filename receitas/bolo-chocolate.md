@@ -26,3 +26,20 @@
 
 ## Modo de preparo
 
+- Bata no liquidificador os ovos por 5 minutos.
+
+- Acrescente aos poucos os demais ingredientes, exceto o fermento.
+
+- Depois de bater acrescente então o fermento.
+
+- Coloque em uma forma média untada e enfarinhada.
+
+- Leve para assar em forno médio, pré-aquecido por 45 minutos, ou até dourar.
+
+### Cobertura:
+
+- Leve ao fogo baixo, a margariana com açúcar.
+
+- Acrescentando aos pouco o chocolate.
+
+- Deixe ferver e despeje sobre o bolo ainda quente.
